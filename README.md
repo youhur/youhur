@@ -1,1 +1,1 @@
-![pallcat](https://github.com/user-attachments/assets/7555fd5a-eedf-485b-86dd-b08535d1e1c7)
+![pallcat](https://github.com/user-attachments/assets/f6bc9178-fcc7-4492-926f-0db55f5bf3e7)
